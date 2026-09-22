@@ -1,1 +1,1 @@
-# Rnstamova Sarvinoz 03-N
+# Rustamova Sarvinoz 03-N
